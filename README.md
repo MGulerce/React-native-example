@@ -1,4 +1,4 @@
-Mobil Ödevi 2019-2020
+Mobil Ödevi 2019-2020 dönemi 1.Öğretim A grubu
 
 Kutay Keleş b161210108
 
